@@ -6,6 +6,9 @@
 
 <img width="1920" height="1080" alt="Screenshot 2025-11-04 100527" src="https://github.com/user-attachments/assets/77641e4d-fea9-49fb-8b55-8f76687d3ed5" />
 
+<img width="1920" height="1080" alt="Screenshot 2025-11-04 100427" src="https://github.com/user-attachments/assets/c4435120-6218-4e1d-bfb2-5d4e5fb16106" />
+
+
 
 
 
